@@ -1,5 +1,5 @@
 👋 Hi, I’m Troy
-👀 I’m interested in my gf
+👀 I love my Girlfriend
 🌱 I’m currently learning javascript
 😄 He/Him
 ⚡ Quick to memorize, quick to forget:)
